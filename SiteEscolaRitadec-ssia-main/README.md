@@ -1,1 +1,0 @@
-# SiteEscolaRitadec-ssia
